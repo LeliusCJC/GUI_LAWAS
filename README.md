@@ -1,1 +1,7 @@
 # GUI_LAWAS
+
+CJC INFORMATION SYSTEM
+----------------------------------------------
+FIRST COMMIT HEHEHEHEHEHEHEHHEHHEHEHEHE
+
+BAD @ PROGRAMMING :<
